@@ -24,3 +24,9 @@ The Album doesn't have to be recent, just new to me.
     My only issue is that the album didn't feel homogeneous, I think it was because some songs are re-releases from early EPs when they had a different style, but I'll have to listen to their earlier works to see if that's the case.
 
     The album cover is really bad, it seems like the work from a high school student who just discovered Photoshop.
+
+4. [System of a Down - Toxicity](https://www.last.fm/music/System+of+a+Down/Toxicity)
+
+    I had to listen to it in mono, because stereo was too annoying.
+
+    Not a fan.
