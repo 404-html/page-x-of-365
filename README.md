@@ -28,3 +28,9 @@ The Album doesn't have to be recent, just new to me.
 4. [System of a Down - Toxicity](https://www.last.fm/music/System+of+a+Down/Toxicity)
 
     I had to listen to it in mono because stereo was too annoying. Not a fan.
+    
+5. [The Sugarhill Gang - The Sugarhill Gang](https://www.last.fm/music/The+Sugarhill+Gang/The+Sugarhill+Gang+-+30th+Anniversary+Edition+(Expanded+Version))
+
+    All the upbeat songs from the album were build around Rapper's Delight, which would be great, in theory, because I love that song.
+    
+    But it's not, is not great, there's no point in listen to the album if the whole "theme" is giving context or sound like Rapper's Delight, in that case I would prefer to listen to that song on loop and I would enjoy it more.
