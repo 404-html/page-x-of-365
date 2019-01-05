@@ -27,6 +27,4 @@ The Album doesn't have to be recent, just new to me.
 
 4. [System of a Down - Toxicity](https://www.last.fm/music/System+of+a+Down/Toxicity)
 
-    I had to listen to it in mono, because stereo was too annoying.
-
-    Not a fan.
+    I had to listen to it in mono, because stereo was too annoying. Not a fan.
