@@ -42,3 +42,10 @@ The Album doesn't have to be recent, just new to me.
     The whole album felt homogeneous with some satisfying rhythm changes here and there, I love the sythwave tunes at _Otra Noche En Miami_ and the bachata guitar on _La Romana_.
     
     I really don't give much attention to lyrics, but I would say this a more "human" version of Bad Bunny, he sings more about personal stuff than the typical fully explicit kind of music he does. He went in a good direction with this.
+
+7. [Tool - Lateralus](https://www.last.fm/music/Tool/Lateralus)
+
+    This record can be a little difficult to review because of its length, I had some issues with the album because of the influences from Nu Metal, which is a genre I don't like. But overall it was a good experience.
+    
+    The only song I didn't like was _"Ticks and Leeches"_, and I didn't like the silent ending of _"Triad"_, I know it was a build for the ending, but it was too much silent time. The ending was awesome, I felt scared, I felt anxious, and I don't know why but it remind me of _"I Was A Prisoner In Your Skull"_ from Swans, you get immersed on the narrative with both songs. I'll listen more stuff from them.
+
