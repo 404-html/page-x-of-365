@@ -49,3 +49,7 @@ The Album doesn't have to be recent, just new to me.
     
     The only song I didn't like was _"Ticks and Leeches"_, and I didn't like the silent ending of _"Triad"_, I know it was a build for the ending, but it was too much silent time. The ending was awesome, I felt scared, I felt anxious, and I don't know why but it remind me of _"I Was A Prisoner In Your Skull"_ from Swans, you get immersed on the narrative with both songs. I'll listen more stuff from them.
 
+8. [Aphex Twin - ...I Care Because You Do](https://www.last.fm/music/Aphex+Twin/...I+Care+Because+You+Do)
+
+    Really love the balance on this album, it felt so peaceful and harmonious and yet so intriguing and threatening, even the noisy part fit so perfectly. Not much else to say, it was good and I'll definitely listen to it regurarly.
+
