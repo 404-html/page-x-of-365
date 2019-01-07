@@ -34,3 +34,11 @@ The Album doesn't have to be recent, just new to me.
     All the upbeat songs from the album were build around Rapper's Delight, which would be great, in theory, because I love that song.
     
     But it's not, is not great, there's no point in listen to the album if the whole "theme" is giving context or sound like Rapper's Delight, in that case I would prefer to listen to that song on loop and I would enjoy it more.
+
+6. [Bad Bunny - X 100PRE](https://www.last.fm/music/Bad%20Bunny/X%20100PRE)
+
+    This album is surprisingly good, considering the fact that most of reggaeton/trap artist focus only on releasing singles with the intention to become the next banger of the moment.
+    
+    The whole album felt homogeneous with some satisfying rhythm changes here and there, I love the sythwave tunes at _Otra Noche En Miami_ and the bachata guitar on _La Romana_.
+    
+    I really don't give much attention to lyrics, but I would say this a more "human" version of Bad Bunny, he sings more about personal stuff than the typical fully explicit kind of music he does. He went in a good direction with this.
