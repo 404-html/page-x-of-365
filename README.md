@@ -59,3 +59,7 @@ The Album doesn't have to be recent, just new to me.
 
     But yeah, this will one more of my to-go vaporwave albums.
 
+10. [Tatsuro Yamashita - For You](https://www.last.fm/music/%E5%B1%B1%E4%B8%8B%E9%81%94%E9%83%8E/FOR+YOU)
+
+    Contiuning from the aesthetic feel of vapowave, I decided to listen to some japanese 80's music. It was the best experience while driving in the city. It was the best _City Pop_ album I had listened to date.
+
