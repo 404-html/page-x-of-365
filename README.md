@@ -53,3 +53,9 @@ The Album doesn't have to be recent, just new to me.
 
     Really love the balance on this album, it felt so peaceful and harmonious and yet so intriguing and threatening, even the noisy part fit so perfectly. Not much else to say, it was good and I'll definitely listen to it regurarly.
 
+9. [ESPRIT 空想 - 200% Electronica](https://www.last.fm/music/ESPRIT+%E7%A9%BA%E6%83%B3/200%25+Electronica)
+
+    I can't remember the last time I listened to a Vaporwave album so good. I mean, I love vaporwave, but I have to admit that most of songs from most artist sound kinda the same (which is the best if you like the genre). **and this album is not the exception**, but still it felt more soundtrack-y than most of vaporwave songs, which I liked becuase it felt more light and easy to listen.
+
+    But yeah, this will one more of my to-go vaporwave albums.
+
