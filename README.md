@@ -63,3 +63,7 @@ The Album doesn't have to be recent, just new to me.
 
     Contiuning from the aesthetic feel of vapowave, I decided to listen to some japanese 80's music. It was the best experience while driving in the city. It was the best _City Pop_ album I had listened to date.
 
+11. [Travi$ Scott - ASTROWORLD](https://www.last.fm/music/Travi$+Scott/ASTROWORLD)
+
+    I never had the chance to listen to Travi$ Scott, I really enjoyed the album, the **SICKO MODE** song is a total hit, but the rest of the album is pretty good also. I'll definitely listen to his previous albums too.
+
