@@ -67,3 +67,9 @@ The Album doesn't have to be recent, just new to me.
 
     I never had the chance to listen to Travi$ Scott, I really enjoyed the album, the **SICKO MODE** song is a total hit, but the rest of the album is pretty good also. I'll definitely listen to his previous albums too.
 
+12. [Have a Nice Life - The Unnatural World](https://www.last.fm/music/Have+a+Nice+Life/The+Unnatural+World)
+
+    **Arrowheads (x76)**
+
+    I liked this album more than Deathconsciousness, it's more post-rock an doesn't break the aura, I felt Deathconsciousness was too experimental for my taste.
+
