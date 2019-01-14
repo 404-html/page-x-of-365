@@ -73,3 +73,8 @@ The Album doesn't have to be recent, just new to me.
 
     I liked this album more than Deathconsciousness, it's more post-rock an doesn't break the aura, I felt Deathconsciousness was too experimental for my taste.
 
+13. [50 Cent - Get Rich Or Die Tryin'](https://www.last.fm/music/50+Cent/Get+Rich+Or+Die+Tryin%27)
+
+    Back in the day 50 Cent was everywhere, he was the face of hip-hop, I like his songs, he had good bangers, but I never tried to listen to a whole album by him. And I'm glad that I did, this album was good from the start to end, I has all the hits that I remember from him, but the songs that I haven't listened are equally good.
+
+    This is a perfect album for working out, also. It will be one of my to-go gym albums.
