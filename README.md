@@ -1,4 +1,4 @@
-# Page `N` of 365
+# Page `x` of 365
 
 I'll be listening to 365 new albums on this 2019.  
 The Album doesn't have to be recent, just new to me.
