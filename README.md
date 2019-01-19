@@ -82,3 +82,25 @@ The Album doesn't have to be recent, just new to me.
 14. [HOLY FAWN - DEATH SPELLS](https://www.last.fm/music/HOLY+FAWN/DEATH+SPELLS)
 
     Cold, warm, harsh, tender. I listened to it while driving on drizzly afternoon along a lonely highway, I don't think there's a better occasion to listen to it.
+
+15. [Breakbot - By Your Side](https://www.last.fm/music/Breakbot/By+Your+Side)
+
+    I found this album looking for some good French House album, I listened to him because album looked familiar, I knew I had seen that artwork somewhere, and for my surprise this was the album from where "that" song is (Baby I'm Yours).
+
+    Is a nice album, a blend of many genres who fit so well together. It's far from the sound I expected, I was looking for something more Like DANGER or Kavinsky, but it was a nice surprise. 
+    
+    Even though, I can't say I like every songs the same way, because almost all of them have their own style, but overall I liked the album and is something I would easily listen while working or driving.
+
+16. [The walters - Songs for Dads](https://www.last.fm/music/The+walters/Songs+for+Dads)
+
+    Oh, the modern-retro style was wonderful, even if it's just an EP it deserves praise. I also liked the manga-styled cover, (it's worth to mention). It gave me an itch for The Beach Boy music, but I will stick my neck out and say I like this more than them.
+
+17. [The Beach Boys - Pet Sounds](https://www.last.fm/music/The+Beach+Boys/Pet+Sounds)
+
+    So, scratching my itch for Beach Boys I finally listened to this album (I said to myself years ago that I was going to do it). Considering this album is from '66, it have aged really well, the album doesn't sound like the typical Beach Boy style,as always the instrumental tracks where my favorites, I'll be listening to more 60's music and bands inspired by The Beach Boys.
+
+18. [Los Prisioneros - Corazones](https://www.last.fm/music/Los+Prisioneros/Corazones)
+
+    "Tren Al Sur" and "Estrechez De Corazón" are anachronic hits from latin american rock, maybe all of you will agree with me that either (or both) songs deserve a spot in the top 10 of spanish rock music from all time.
+
+    But damn, "that rap song" was trash, it ruined the album for me, I didn't have a good experience listening to it, also because many songs from the album felt subpar, maybe because those two hits overshadow the rest. But I don't think I will ever listen to this album again. Ok, "Noche en la ciudad" had good sound and lyrics, but beside that nothing else is redeemable.
