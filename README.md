@@ -104,3 +104,7 @@ The Album doesn't have to be recent, just new to me.
     "Tren Al Sur" and "Estrechez De Corazón" are anachronic hits from latin american rock, maybe all of you will agree with me that either (or both) songs deserve a spot in the top 10 of spanish rock music from all time.
 
     But damn, "that rap song" was trash, it ruined the album for me, I didn't have a good experience listening to it, also because many songs from the album felt subpar, maybe because those two hits overshadow the rest. But I don't think I will ever listen to this album again. Ok, "Noche en la ciudad" had good sound and lyrics, but beside that nothing else is redeemable.
+
+19. [Moe Shop - Pure Pure](https://www.last.fm/music/Moe+Shop/Pure+Pure)
+
+    I'm glad how Moe Shop's sound have evolved, from this album to the recent releases there's a lot of difference, and I like more the new sound, not that I didn't like this album, but today's tracks sound so much better. There's nothing much to say, the album is still ok.
