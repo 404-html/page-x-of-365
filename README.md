@@ -108,3 +108,13 @@ The Album doesn't have to be recent, just new to me.
 19. [Moe Shop - Pure Pure](https://www.last.fm/music/Moe+Shop/Pure+Pure)
 
     I'm glad how Moe Shop's sound have evolved, from this album to the recent releases there's a lot of difference, and I like more the new sound, not that I didn't like this album, but today's tracks sound so much better. There's nothing much to say, the album is still ok.
+
+20. [Vision Divine - Vision Divine](https://www.last.fm/music/Vision+Divine/Vision+Divine)
+
+    I had almost 10 years (I think) since the last time I listened to Vision Divine. I'll admit that I just listened to them the first time because of their _Take On Me_ cover, and I almost choose that album _(Send me an Angel)_ to review, but when I was listening the songs I realized I had already listened to it many years ago, then I choosed to review this one.
+
+    The sound is amazing, is what you expect and what you want from a Power Metal band, Fabio Lione's voice is impeccable, did I told you that Rhapsody was the first Power Metal band I ever listened?, so yeah, I was pretty nostalgic while listening to this album. What I liked the most is that there's no weak tracks, all of them are full blasting powerfull metal songs (just until the end but that's forgivable at that point).
+
+    Also I love the cover, angels and Power Metal goes pretty well, actually I prefer song singing about the end of the days and religious mythologies than generic medieval fantasies.
+
+    I'll definitelly continue listening their whole discography (I think I had listened to more albums from them, I'll double check), expect more.
