@@ -118,3 +118,9 @@ The Album doesn't have to be recent, just new to me.
     Also I love the cover, angels and Power Metal goes pretty well, actually I prefer song singing about the end of the days and religious mythologies than generic medieval fantasies.
 
     I'll definitelly continue listening their whole discography (I think I had listened to more albums from them, I'll double check), expect more.
+
+21. [BROCKHAMPTON - SATURATION](https://www.last.fm/music/BROCKHAMPTON/SATURATION)
+
+    I'm trying to get into BROCKHAMPTON and I'll listen their albums chronologically, people say SATURATION II is the best one, but I don't want to start there because if it is really the best one, then everything will go downhill from there, right?
+
+    So yeah, the album is pretty catchy, it has some strong violent tracks, some other softer ballad-like rap songs, but all of them have good beats, it's great not a single one catched my attention at being bad, I liked the diversity of sounds, it has a very wide range of moods and tempos, and that was expected considering the amount of artist working on the album. I want to listen to it more before getting into the next one, but I hope to listen all of their albums and include them on this list. To Be Continued.
