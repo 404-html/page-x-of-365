@@ -124,3 +124,9 @@ The Album doesn't have to be recent, just new to me.
     I'm trying to get into BROCKHAMPTON and I'll listen their albums chronologically, people say SATURATION II is the best one, but I don't want to start there because if it is really the best one, then everything will go downhill from there, right?
 
     So yeah, the album is pretty catchy, it has some strong violent tracks, some other softer ballad-like rap songs, but all of them have good beats, it's great not a single one catched my attention at being bad, I liked the diversity of sounds, it has a very wide range of moods and tempos, and that was expected considering the amount of artist working on the album. I want to listen to it more before getting into the next one, but I hope to listen all of their albums and include them on this list. To Be Continued.
+
+22. [The Brecker Brothers - The Brecker Bros](https://www.last.fm/music/The+Brecker+Brothers/The+Brecker+Bros)
+
+    I love this album, this is the kind of jazz that I digg, it has a funky sound that give it so much energy, there are some parts more funky than jazzy and that gives you a sensation of going side to side, up and down, Marco to Polo (if you know what I mean, because I don't), there's only one slow song and one with lyrics, both still fit well in the album because they give you some sort of break from the rest of the album, you cannot listen to it without feeling pumped.
+    
+    I does kinda sound like a soundtrack, but I don't think that's a bad thing.
