@@ -130,3 +130,8 @@ The Album doesn't have to be recent, just new to me.
     I love this album, this is the kind of jazz that I digg, it has a funky sound that give it so much energy, there are some parts more funky than jazzy and that gives you a sensation of going side to side, up and down, Marco to Polo (if you know what I mean, because I don't), there's only one slow song and one with lyrics, both still fit well in the album because they give you some sort of break from the rest of the album, you cannot listen to it without feeling pumped.
     
     I does kinda sound like a soundtrack, but I don't think that's a bad thing.
+
+23. [Eminem - The Eminem Show](https://www.last.fm/music/Eminem/The+Eminem+Show)
+
+    Ok, I never liked Eminem and I don't know why this time would be different.  
+    I guess the album is ok, but I'm too biased. I would pick another album to review if I had the time, but I can't say much about this, I just didn't like it.
