@@ -133,5 +133,5 @@ The Album doesn't have to be recent, just new to me.
 
 23. [Eminem - The Eminem Show](https://www.last.fm/music/Eminem/The+Eminem+Show)
 
-    Ok, I never liked Eminem and I don't know why this time would be different.  
+    Ok, I never liked Eminem and I don't know why I thougth this time would be different.  
     I guess the album is ok, but I'm too biased. I would pick another album to review if I had the time, but I can't say much about this, I just didn't like it.
