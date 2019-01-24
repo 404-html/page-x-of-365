@@ -138,8 +138,8 @@ The Album doesn't have to be recent, just new to me.
 
 24. [Weezer - Teal Album](https://www.last.fm/music/Weezer/Weezer%20(Teal%20Album))
 
-    Hey, this album came out of nowhere, and it's so good I want to review it. And yes, it's good just because is a covers album from 70-80-90's songs which everyone, I mean EVERYONE love.
+    Hey, this album came out of nowhere, and it's so good that I want to review it. And yes, I think it's good just because is a covers album from 60-70-80-90's songs which everyone (I mean EVERYONE) love.
 
-    I would say they should have include _Rosanna_ from Toto and _Android Paranoid_ from Radiohead to the list, and _No Scrubs_ kinda doesn't fit with the other songs, I could say even _Paranoid_ doesn't fit. But hey, the final result is really nice. There are songs which I like how they sound in this cover version more than the original ones, _Sweet Dreams_ and _Stand by Me_ for instance. As opposite to that, I think their version of _Africa_ isn't as faithful to the original as I would like, maybe I'm just too purist when it comes to covers.
-    
-    Overall the album is really good, but still I would skip No Scrubs and Paranoid just because there don't fit at much in this list as the rest.
+    I think that they should have included _Rosanna_ from Toto and _Android Paranoid_ from Radiohead to the list, and _No Scrubs_ kinda doesn't fit with the other songs. I would say even _Paranoid_ doesn't fit, but hey, the final result is really nice. There are songs which I like how they sound in this cover version more than the original ones, _Sweet Dreams_ and _Stand by Me_ for instance. As opposite to that, I think their version of _Africa_ isn't as faithful to the original as I would like, maybe I'm just too purist when it comes to covers.
+
+    Overall the album is really good, but still I'll skip _No Scrubs_ and _Paranoid_ when I listen to this album, just because they don't fit at much in this list as the rest.
