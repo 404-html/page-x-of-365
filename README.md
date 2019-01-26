@@ -143,3 +143,7 @@ The Album doesn't have to be recent, just new to me.
     I think that they should have included _Rosanna_ from Toto and _Android Paranoid_ from Radiohead to the list, and _No Scrubs_ kinda doesn't fit with the other songs. I would say even _Paranoid_ doesn't fit, but hey, the final result is really nice. There are songs which I like how they sound in this cover version more than the original ones, _Sweet Dreams_ and _Stand by Me_ for instance. As opposite to that, I think their version of _Africa_ isn't as faithful to the original as I would like, maybe I'm just too purist when it comes to covers.
 
     Overall the album is really good, but still I'll skip _No Scrubs_ and _Paranoid_ when I listen to this album, just because they don't fit at much in this list as the rest.
+
+25. [Immortal - Northern Chaos Gods](https://www.last.fm/music/Immortal/Northern+Chaos+Gods)
+
+    Even though I miss Abbath on the vocals this is a really great album, it have all the elements that I love from Immortal, it's so cold, so dark, so raw yet melodic, it's much better than their last work, a great comeback, let's hope we don't have to wait another 9 years for a new album.
