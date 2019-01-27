@@ -147,3 +147,15 @@ The Album doesn't have to be recent, just new to me.
 25. [Immortal - Northern Chaos Gods](https://www.last.fm/music/Immortal/Northern+Chaos+Gods)
 
     Even though I miss Abbath on the vocals this is a really great album, it have all the elements that I love from Immortal, it's so cold, so dark, so raw yet melodic, it's much better than their last work, a great comeback, let's hope we don't have to wait another 9 years for a new album.
+
+25. [Immortal - Northern Chaos Gods](https://www.last.fm/music/Immortal/Northern+Chaos+Gods)
+
+    Even though I miss Abbath on the vocals this is a really great album, it have all the elements that I love from Immortal, it's so cold, so dark, so raw yet melodic, it's much better than their last work, a great comeback, let's hope we don't have to wait another 9 years for a new album.
+
+26. [Electric Light Orchestra - A New World Record](https://www.last.fm/music/Electric+Light+Orchestra/A+New+World+Record)
+
+    This album is so good that now I want it on physical form, what else can I say?
+
+    Everybody knows _Telephone Line_ and _Livin' Thing_, but all the songs from this album are equally good, the only downside is that it's too short, I listened to it 5 times before switching to other album.
+
+    Shangri-La is the perfect ending, one of the best I had ever listen.
