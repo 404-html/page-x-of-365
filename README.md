@@ -163,3 +163,5 @@ The Album doesn't have to be recent, just new to me.
 27. [Brand New - Science Fiction](https://www.last.fm/music/Brand+New/Science+Fiction)
 
     I had mixed feelings about this albums, it have great songs, like _Same Logic / Teeth_ which ironically follow after the song I least like, _Could Never Be Heaven_, most of the songs at the end are very forgettable.
+
+    I probably will still listen to it a few more times until I get bored of it, so yeah.
