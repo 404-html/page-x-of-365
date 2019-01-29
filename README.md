@@ -171,3 +171,7 @@ The Album doesn't have to be recent, just new to me.
     I had mixed feelings about this albums, it have great songs, like _Same Logic / Teeth_ which ironically follow after the song I least like, _Could Never Be Heaven_, most of the songs at the end are very forgettable.
 
     I probably will still listen to it a few more times until I get bored of it, so yeah.
+
+28. [Earl Sweatshirt - Some Rap Songs](https://www.last.fm/music/Earl+Sweatshirt/Some+Rap+Songs)
+
+    I have to admit this album is something you can't digest in a single day, I listened to it four or five times and I'm not sure how to interpret it, the songs aren't bad, some of them are catchy and pretty chill, but still I have to listen to it more to form an opinion.
