@@ -175,3 +175,7 @@ The Album doesn't have to be recent, just new to me.
 28. [Earl Sweatshirt - Some Rap Songs](https://www.last.fm/music/Earl+Sweatshirt/Some+Rap+Songs)
 
     I have to admit this album is something you can't digest in a single day, I listened to it four or five times and I'm not sure how to interpret it, the songs aren't bad, some of them are catchy and pretty chill, but still I have to listen to it more to form an opinion.
+
+29. [(Sandy) Alex G - Rocket](https://www.last.fm/music/(Sandy)+Alex+G/Rocket)
+
+    I like this album a lot, it mixes so many genres together: country, jazz, psychedelic rock, poppy melodies, and even if the rhythm changes from one song to the next one it feels so homogeneous, you don't notice the change, it's like a playlist of your favorite songs from every genre but put together in a way they don't collide with each other and keep the harmony. I'm glad albums like this exists.
