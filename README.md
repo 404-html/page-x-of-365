@@ -179,3 +179,11 @@ The Album doesn't have to be recent, just new to me.
 29. [(Sandy) Alex G - Rocket](https://www.last.fm/music/(Sandy)+Alex+G/Rocket)
 
     I like this album a lot, it mixes so many genres together: country, jazz, psychedelic rock, poppy melodies, and even if the rhythm changes from one song to the next one it feels so homogeneous, you don't notice the change, it's like a playlist of your favorite songs from every genre but put together in a way they don't collide with each other and keep the harmony. I'm glad albums like this exists.
+
+30. [Car Seat Headrest - Twin Fantasy](https://www.last.fm/music/Car+Seat+Headrest/Twin+Fantasy)
+
+    I know this album has a lot of cult following online, so before listen to it I expected it to be good, and it really is. Musically it has a great sound and production, and lirically is one of the most deep albums I have listen on this year (maybe the best).
+
+    I don't care if the remake or the original is better, the message is what matters on this album. And I should say, this is not the kind of albums that I listen to, but I'm surprised of the music quality and the message this album delivers.
+
+    Maybe I'll listen to more albums from this band. And if I do, I'll definitely listen to _Teens Of Denial_ next.
