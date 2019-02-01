@@ -187,3 +187,12 @@ The Album doesn't have to be recent, just new to me.
     I don't care if the remake or the original is better, the message is what matters on this album. And I should say, this is not the kind of albums that I listen to, but I'm surprised of the music quality and the message this album delivers.
 
     Maybe I'll listen to more albums from this band. And if I do, I'll definitely listen to _Teens Of Denial_ next.
+
+
+30. [Amon Amarth - Deceiver of the Gods](https://www.last.fm/music/Amon+Amarth/Deceiver+of+the+Gods)
+
+    This album has everything I love from Amon Amarth, is strong, epic and with some melodic touches, just like a storm blasting through your ears.
+
+    The song _Hel_ adds a nice touch with Messiah Marcolin vocals to the already know style of Amon Amarth, the only thing that I felt odd from this album was the solo at the end of _Coming of the Tide_, is not that it's bad or something, it just sounds too misplaced from the rest of the song (or the album).
+    
+    The closing is one of the best song in the album, it's the perfect ending that fills you with energy and make you want to play the album again or listen to other records from this great band.
