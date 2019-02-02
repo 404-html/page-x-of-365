@@ -197,3 +197,7 @@ The Album doesn't have to be recent, just new to me.
     So, today is the 25th anniversary of this album, and I have to admit I didn't listen to it until now. And it was good, it has the standard Green Day sound and I felt it gets way better after _Basket Case_ you can feel the before and after from that point, there are a couple of song that I already knew, and I feel good about it because I wasn't missing much from this album, from the second half (Basket Case onwards) I just didn't knew one song (excluding the ending), so I was pretty happy to finally know the context from all of them, and for the fact that I knew a good amount of songs already.
     
     So yeah, I finally listened to this album and I enjoyed it, maybe I'll listen to more Green Day albums in a near future.
+
+33. [AJJ - The Bible 2](https://www.last.fm/music/ajj/The+Bible+2)
+
+    I tried to listen to this album bebore Green Day's one, "maybe I should listen more from it to actually like it", I said to myself. But no, I didn't like it, it's too boring for me.
