@@ -189,10 +189,19 @@ The Album doesn't have to be recent, just new to me.
     Maybe I'll listen to more albums from this band. And if I do, I'll definitely listen to _Teens Of Denial_ next.
 
 
-30. [Amon Amarth - Deceiver of the Gods](https://www.last.fm/music/Amon+Amarth/Deceiver+of+the+Gods)
+31. [Amon Amarth - Deceiver of the Gods](https://www.last.fm/music/Amon+Amarth/Deceiver+of+the+Gods)
 
     This album has everything I love from Amon Amarth, is strong, epic and with some melodic touches, just like a storm blasting through your ears.
 
     The song _Hel_ adds a nice touch with Messiah Marcolin vocals to the already know style of Amon Amarth, the only thing that I felt odd from this album was the solo at the end of _Coming of the Tide_, is not that it's bad or something, it just sounds too misplaced from the rest of the song (or the album).
     
     The closing is one of the best song in the album, it's the perfect ending that fills you with energy and make you want to play the album again or listen to other records from this great band.
+
+
+## February
+
+1. [Green Day - Dookie](https://www.last.fm/music/Green+Day/Dookie)
+
+    So, today is the 25th anniversary of this album, and I have to admit I didn't listen to it until now. And it was good, it has the standard Green Day sound and I felt it gets way better after _Basket Case_ you can feel the before and after from that point, there are a couple of song that I already knew, and I feel good about it because I wasn't missing much from this album, from the second half (Basket Case onwards) I just didn't knew one song (excluding the ending), so I was pretty happy to finally know the context from all of them, and for the fact that I knew a good amount of songs already.
+    
+    So yeah, I finally listened to this album and I enjoyed it, maybe I'll listen to more Green Day albums in a near future.
