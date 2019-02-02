@@ -95,21 +95,17 @@ The Album doesn't have to be recent, just new to me.
 
     Oh, the modern-retro style was wonderful, even if it's just an EP it deserves praise. I also liked the manga-styled cover, (it's worth to mention). It gave me an itch for The Beach Boy music, but I will stick my neck out and say I like this more than them.
 
-17. [The Beach Boys - Pet Sounds](https://www.last.fm/music/The+Beach+Boys/Pet+Sounds)
-
-    So, scratching my itch for Beach Boys I finally listened to this album (I said to myself years ago that I was going to do it). Considering this album is from '66, it have aged really well, the album doesn't sound like the typical Beach Boy style,as always the instrumental tracks where my favorites, I'll be listening to more 60's music and bands inspired by The Beach Boys.
-
-18. [Los Prisioneros - Corazones](https://www.last.fm/music/Los+Prisioneros/Corazones)
+17. [Los Prisioneros - Corazones](https://www.last.fm/music/Los+Prisioneros/Corazones)
 
     "Tren Al Sur" and "Estrechez De Corazón" are anachronic hits from latin american rock, maybe all of you will agree with me that either (or both) songs deserve a spot in the top 10 of spanish rock music from all time.
 
     But damn, "that rap song" was trash, it ruined the album for me, I didn't have a good experience listening to it, also because many songs from the album felt subpar, maybe because those two hits overshadow the rest. But I don't think I will ever listen to this album again. Ok, "Noche en la ciudad" had good sound and lyrics, but beside that nothing else is redeemable.
 
-19. [Moe Shop - Pure Pure](https://www.last.fm/music/Moe+Shop/Pure+Pure)
+18. [Moe Shop - Pure Pure](https://www.last.fm/music/Moe+Shop/Pure+Pure)
 
     I'm glad how Moe Shop's sound have evolved, from this album to the recent releases there's a lot of difference, and I like more the new sound, not that I didn't like this album, but today's tracks sound so much better. There's nothing much to say, the album is still ok.
 
-20. [Vision Divine - Vision Divine](https://www.last.fm/music/Vision+Divine/Vision+Divine)
+19. [Vision Divine - Vision Divine](https://www.last.fm/music/Vision+Divine/Vision+Divine)
 
     I had almost 10 years (I think) since the last time I listened to Vision Divine. I'll admit that I just listened to them the first time because of their _Take On Me_ cover, and I almost choose that album _(Send me an Angel)_ to review, but when I was listening the songs I realized I had already listened to it many years ago, then I choosed to review this one.
 
@@ -119,24 +115,24 @@ The Album doesn't have to be recent, just new to me.
 
     I'll definitelly continue listening their whole discography (I think I had listened to more albums from them, I'll double check), expect more.
 
-21. [BROCKHAMPTON - SATURATION](https://www.last.fm/music/BROCKHAMPTON/SATURATION)
+20. [BROCKHAMPTON - SATURATION](https://www.last.fm/music/BROCKHAMPTON/SATURATION)
 
     I'm trying to get into BROCKHAMPTON and I'll listen their albums chronologically, people say SATURATION II is the best one, but I don't want to start there because if it is really the best one, then everything will go downhill from there, right?
 
     So yeah, the album is pretty catchy, it has some strong violent tracks, some other softer ballad-like rap songs, but all of them have good beats, it's great not a single one catched my attention at being bad, I liked the diversity of sounds, it has a very wide range of moods and tempos, and that was expected considering the amount of artist working on the album. I want to listen to it more before getting into the next one, but I hope to listen all of their albums and include them on this list. To Be Continued.
 
-22. [The Brecker Brothers - The Brecker Bros](https://www.last.fm/music/The+Brecker+Brothers/The+Brecker+Bros)
+21. [The Brecker Brothers - The Brecker Bros](https://www.last.fm/music/The+Brecker+Brothers/The+Brecker+Bros)
 
     I love this album, this is the kind of jazz that I digg, it has a funky sound that give it so much energy, there are some parts more funky than jazzy and that gives you a sensation of going side to side, up and down, Marco to Polo (if you know what I mean, because I don't), there's only one slow song and one with lyrics, both still fit well in the album because they give you some sort of break from the rest of the album, you cannot listen to it without feeling pumped.
     
     I does kinda sound like a soundtrack, but I don't think that's a bad thing.
 
-23. [Eminem - The Eminem Show](https://www.last.fm/music/Eminem/The+Eminem+Show)
+22. [Eminem - The Eminem Show](https://www.last.fm/music/Eminem/The+Eminem+Show)
 
     Ok, I never liked Eminem and I don't know why I thougth this time would be different.  
     I guess the album is ok, but I'm too biased. I would pick another album to review if I had the time, but I can't say much about this, I just didn't like it.
 
-24. [Weezer - Teal Album](https://www.last.fm/music/Weezer/Weezer%20(Teal%20Album))
+23. [Weezer - Teal Album](https://www.last.fm/music/Weezer/Weezer%20(Teal%20Album))
 
     Hey, this album came out of nowhere, and it's so good that I want to review it. And yes, I think it's good just because is a covers album from 60-70-80-90's songs which everyone (I mean EVERYONE) love.
 
@@ -144,15 +140,11 @@ The Album doesn't have to be recent, just new to me.
 
     Overall the album is really good, but still I'll skip _No Scrubs_ and _Paranoid_ when I listen to this album, just because they don't fit at much in this list as the rest.
 
-25. [Immortal - Northern Chaos Gods](https://www.last.fm/music/Immortal/Northern+Chaos+Gods)
+24. [Immortal - Northern Chaos Gods](https://www.last.fm/music/Immortal/Northern+Chaos+Gods)
 
     Even though I miss Abbath on the vocals this is a really great album, it have all the elements that I love from Immortal, it's so cold, so dark, so raw yet melodic, it's much better than their last work, a great comeback, let's hope we don't have to wait another 9 years for a new album.
 
-25. [Immortal - Northern Chaos Gods](https://www.last.fm/music/Immortal/Northern+Chaos+Gods)
-
-    Even though I miss Abbath on the vocals this is a really great album, it have all the elements that I love from Immortal, it's so cold, so dark, so raw yet melodic, it's much better than their last work, a great comeback, let's hope we don't have to wait another 9 years for a new album.
-
-26. [Electric Light Orchestra - A New World Record](https://www.last.fm/music/Electric+Light+Orchestra/A+New+World+Record)
+25. [Electric Light Orchestra - A New World Record](https://www.last.fm/music/Electric+Light+Orchestra/A+New+World+Record)
 
     This album is so good that now I want it on physical form, what else can I say?
 
@@ -160,7 +152,7 @@ The Album doesn't have to be recent, just new to me.
 
     Shangri-La is the perfect ending, one of the best I had ever listen.
 
-27. [Brand New - Science Fiction](https://www.last.fm/music/Brand+New/Science+Fiction)
+26. [Brand New - Science Fiction](https://www.last.fm/music/Brand+New/Science+Fiction)
 
     I had mixed feelings about this albums, it have great songs, like _Same Logic / Teeth_ which ironically follow after the song I least like, _Could Never Be Heaven_, most of the songs at the end are very forgettable.
 
@@ -200,7 +192,7 @@ The Album doesn't have to be recent, just new to me.
 
 ## February
 
-1. [Green Day - Dookie](https://www.last.fm/music/Green+Day/Dookie)
+32. [Green Day - Dookie](https://www.last.fm/music/Green+Day/Dookie)
 
     So, today is the 25th anniversary of this album, and I have to admit I didn't listen to it until now. And it was good, it has the standard Green Day sound and I felt it gets way better after _Basket Case_ you can feel the before and after from that point, there are a couple of song that I already knew, and I feel good about it because I wasn't missing much from this album, from the second half (Basket Case onwards) I just didn't knew one song (excluding the ending), so I was pretty happy to finally know the context from all of them, and for the fact that I knew a good amount of songs already.
     
