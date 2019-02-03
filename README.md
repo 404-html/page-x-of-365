@@ -201,3 +201,9 @@ The Album doesn't have to be recent, just new to me.
 33. [AJJ - The Bible 2](https://www.last.fm/music/ajj/The+Bible+2)
 
     I tried to listen to this album bebore Green Day's one, "maybe I should listen more from it to actually like it", I said to myself. But no, I didn't like it, it's too boring for me.
+
+34. [Avantasia - Ghostlights](https://www.last.fm/music/Avantasia/Ghostlights)
+
+    Avantasia has some really great albums, I know all the collaborations and effort put on their album lend us to put big expectations for their quality. By no means this album is bad, but I feel it doesn't hold up really well in comparison to their other albums, it's a great Power Metal album, but not one of the best from Avantasia.
+    
+    Every other Avantasia (and you can say this about every Power Metal album), has build-up songs and full blasting energy songs, and you know the build ups are necessary to make emphasis on the blasting songs. But I feel this album is just build ups, and no energy, it feels lacking, maybe I should listen to it more to really appreciate it, or maybe is just not the kind of albums I like. It's still pretty good though.
