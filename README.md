@@ -209,6 +209,6 @@ The Album doesn't have to be recent, just new to me.
     Every other Avantasia (and you can say this about every Power Metal album), has build-up songs and full blasting energy songs, and you know the build ups are necessary to make emphasis on the blasting songs. But I feel this album is just build ups, and no energy, it feels lacking, maybe I should listen to it more to really appreciate it, or maybe is just not the kind of albums I like. It's still pretty good though.
 
 
-35. [Two Airships / Exploder Falls](https://www.last.fm/music/Candy+Claws/Two+Airships+%2F+Exploder+Falls)
+35. [Candy Claws - Two Airships / Exploder Falls](https://www.last.fm/music/Candy+Claws/Two+Airships+%2F+Exploder+Falls)
     
     This album is certainly one of the craziest I had listen so far from this list, and even if it's very different from the rest of Candy Claws' albums, I enjoyed it a lot, it's still cozy as the rest, but more experimental, electronic and almost psychedelic.
