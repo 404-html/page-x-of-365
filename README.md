@@ -28,25 +28,25 @@ The Album doesn't have to be recent, just new to me.
 4. [System of a Down - Toxicity](https://www.last.fm/music/System+of+a+Down/Toxicity)
 
     I had to listen to it in mono because stereo was too annoying. Not a fan.
-    
+
 5. [The Sugarhill Gang - The Sugarhill Gang](https://www.last.fm/music/The+Sugarhill+Gang/The+Sugarhill+Gang+-+30th+Anniversary+Edition+(Expanded+Version))
 
     All the upbeat songs from the album were build around Rapper's Delight, which would be great, in theory, because I love that song.
-    
+
     But it's not, is not great, there's no point in listen to the album if the whole "theme" is giving context or sound like Rapper's Delight, in that case I would prefer to listen to that song on loop and I would enjoy it more.
 
 6. [Bad Bunny - X 100PRE](https://www.last.fm/music/Bad%20Bunny/X%20100PRE)
 
     This album is surprisingly good, considering the fact that most of reggaeton/trap artist focus only on releasing singles with the intention to become the next banger of the moment.
-    
+
     The whole album felt homogeneous with some satisfying rhythm changes here and there, I love the sythwave tunes at _Otra Noche En Miami_ and the bachata guitar on _La Romana_.
-    
+
     I really don't give much attention to lyrics, but I would say this a more "human" version of Bad Bunny, he sings more about personal stuff than the typical fully explicit kind of music he does. He went in a good direction with this.
 
 7. [Tool - Lateralus](https://www.last.fm/music/Tool/Lateralus)
 
     This record can be a little difficult to review because of its length, I had some issues with the album because of the influences from Nu Metal, which is a genre I don't like. But overall it was a good experience.
-    
+
     The only song I didn't like was _"Ticks and Leeches"_, and I didn't like the silent ending of _"Triad"_, I know it was a build for the ending, but it was too much silent time. The ending was awesome, I felt scared, I felt anxious, and I don't know why but it remind me of _"I Was A Prisoner In Your Skull"_ from Swans, you get immersed on the narrative with both songs. I'll listen more stuff from them.
 
 8. [Aphex Twin - ...I Care Because You Do](https://www.last.fm/music/Aphex+Twin/...I+Care+Because+You+Do)
@@ -87,8 +87,8 @@ The Album doesn't have to be recent, just new to me.
 
     I found this album looking for some good French House album, I listened to him because album looked familiar, I knew I had seen that artwork somewhere, and for my surprise this was the album from where "that" song is (Baby I'm Yours).
 
-    Is a nice album, a blend of many genres who fit so well together. It's far from the sound I expected, I was looking for something more Like DANGER or Kavinsky, but it was a nice surprise. 
-    
+    Is a nice album, a blend of many genres who fit so well together. It's far from the sound I expected, I was looking for something more Like DANGER or Kavinsky, but it was a nice surprise.
+
     Even though, I can't say I like every songs the same way, because almost all of them have their own style, but overall I liked the album and is something I would easily listen while working or driving.
 
 16. [The walters - Songs for Dads](https://www.last.fm/music/The+walters/Songs+for+Dads)
@@ -124,7 +124,7 @@ The Album doesn't have to be recent, just new to me.
 21. [The Brecker Brothers - The Brecker Bros](https://www.last.fm/music/The+Brecker+Brothers/The+Brecker+Bros)
 
     I love this album, this is the kind of jazz that I digg, it has a funky sound that give it so much energy, there are some parts more funky than jazzy and that gives you a sensation of going side to side, up and down, Marco to Polo (if you know what I mean, because I don't), there's only one slow song and one with lyrics, both still fit well in the album because they give you some sort of break from the rest of the album, you cannot listen to it without feeling pumped.
-    
+
     I does kinda sound like a soundtrack, but I don't think that's a bad thing.
 
 22. [Eminem - The Eminem Show](https://www.last.fm/music/Eminem/The+Eminem+Show)
@@ -180,13 +180,12 @@ The Album doesn't have to be recent, just new to me.
 
     Maybe I'll listen to more albums from this band. And if I do, I'll definitely listen to _Teens Of Denial_ next.
 
-
 31. [Amon Amarth - Deceiver of the Gods](https://www.last.fm/music/Amon+Amarth/Deceiver+of+the+Gods)
 
     This album has everything I love from Amon Amarth, is strong, epic and with some melodic touches, just like a storm blasting through your ears.
 
     The song _Hel_ adds a nice touch with Messiah Marcolin vocals to the already know style of Amon Amarth, the only thing that I felt odd from this album was the solo at the end of _Coming of the Tide_, is not that it's bad or something, it just sounds too misplaced from the rest of the song (or the album).
-    
+
     The closing is one of the best song in the album, it's the perfect ending that fills you with energy and make you want to play the album again or listen to other records from this great band.
 
 
@@ -195,7 +194,7 @@ The Album doesn't have to be recent, just new to me.
 32. [Green Day - Dookie](https://www.last.fm/music/Green+Day/Dookie)
 
     So, today is the 25th anniversary of this album, and I have to admit I didn't listen to it until now. And it was good, it has the standard Green Day sound and I felt it gets way better after _Basket Case_ you can feel the before and after from that point, there are a couple of song that I already knew, and I feel good about it because I wasn't missing much from this album, from the second half (Basket Case onwards) I just didn't knew one song (excluding the ending), so I was pretty happy to finally know the context from all of them, and for the fact that I knew a good amount of songs already.
-    
+
     So yeah, I finally listened to this album and I enjoyed it, maybe I'll listen to more Green Day albums in a near future.
 
 33. [AJJ - The Bible 2](https://www.last.fm/music/ajj/The+Bible+2)
@@ -205,10 +204,15 @@ The Album doesn't have to be recent, just new to me.
 34. [Avantasia - Ghostlights](https://www.last.fm/music/Avantasia/Ghostlights)
 
     Avantasia has some really great albums, I know all the collaborations and effort put on their album lend us to put big expectations for their quality. By no means this album is bad, but I feel it doesn't hold up really well in comparison to their other albums, it's a great Power Metal album, but not one of the best from Avantasia.
-    
+
     Every other Avantasia (and you can say this about every Power Metal album), has build-up songs and full blasting energy songs, and you know the build ups are necessary to make emphasis on the blasting songs. But I feel this album is just build ups, and no energy, it feels lacking, maybe I should listen to it more to really appreciate it, or maybe is just not the kind of albums I like. It's still pretty good though.
 
-
 35. [Candy Claws - Two Airships / Exploder Falls](https://www.last.fm/music/Candy+Claws/Two+Airships+%2F+Exploder+Falls)
-    
+
     This album is certainly one of the craziest I had listen so far from this list, and even if it's very different from the rest of Candy Claws' albums, I enjoyed it a lot, it's still cozy as the rest, but more experimental, electronic and almost psychedelic.
+
+35. [Justice - Woman](https://www.last.fm/music/Justice/Woman)
+
+    Even if _Cross_ is one of my favorite albums from all times, I have to admit I haven't listen to this album yet, and that was because _Audio, Video, Disco_ felt so bad (I can't say if it's just bad in comparison to Cross or in general). But this album is really great, it's more diverse than _Cross_ but it keeps the essence of the band (or duo if you want to get technical) a great album to listen non-stop while driving or working or just to chill out.
+
+    What else can I say? I love this album. I want a physical copy already. 
