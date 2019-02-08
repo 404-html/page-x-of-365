@@ -220,3 +220,9 @@ The Album doesn't have to be recent, just new to me.
 37. [Hypocrisy - Abducted](https://www.last.fm/music/Hypocrisy/Abducted)
 
     This album is pure gold, I love it, one of the best Death Metal album I had ever listen to. Slow and harsh, with spasms of brutality all over it. Before this I had only listen to _10 Years of Chaos and Confusion_ but with this I'll listen to more albums from Hypocrisy.
+
+38. [Erasure - I Say I Say I Say](https://www.last.fm/music/Erasure/I+Say+I+Say+I+Say)
+
+    I have been obsessed with _Always_ for a couple of weeks, so I decided to listen to the whole album. Surprisingly that's the song that fits less among the others, even though is a good album, pretty solid music and style, not a single bad song. I have to admit it's not my kind of music (even with my obsession with _that song_), but still a good album.
+
+    I can listen to this album while working when I need to concentrate on what I'm doing instead of the music. The lack of commas on the title bothers me.
