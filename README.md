@@ -219,5 +219,4 @@ The Album doesn't have to be recent, just new to me.
 
 36. [Hypocrisy - Abducted](https://www.last.fm/music/Hypocrisy/Abducted)
 
-    This album is pure gold, I love it, one of the best Death Metal album I had ever listen to. Slow and harsh, with
-spasms of brutality all over it. Before this I had only listen to _10 Years of Chaos and Confusion_ but with this I'll listen to more albums from Hypocrisy.
+    This album is pure gold, I love it, one of the best Death Metal album I had ever listen to. Slow and harsh, with spasms of brutality all over it. Before this I had only listen to _10 Years of Chaos and Confusion_ but with this I'll listen to more albums from Hypocrisy.
