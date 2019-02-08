@@ -215,4 +215,9 @@ The Album doesn't have to be recent, just new to me.
 
     Even if _Cross_ is one of my favorite albums from all times, I have to admit I haven't listen to this album yet, and that was because _Audio, Video, Disco_ felt so bad (I can't say if it's just bad in comparison to Cross or in general). But this album is really great, it's more diverse than _Cross_ but it keeps the essence of the band (or duo if you want to get technical) a great album to listen non-stop while driving or working or just to chill out.
 
-    What else can I say? I love this album. I want a physical copy already. 
+    What else can I say? I love this album. I want a physical copy already.
+
+36. [Hypocrisy - Abducted](https://www.last.fm/music/Hypocrisy/Abducted)
+
+    This album is pure gold, I love it, one of the best Death Metal album I had ever listen to. Slow and harsh, with
+spasms of brutality all over it. Before this I had only listen to _10 Years of Chaos and Confusion_ but with this I'll listen to more albums from Hypocrisy.
