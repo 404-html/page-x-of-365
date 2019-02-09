@@ -226,3 +226,11 @@ The Album doesn't have to be recent, just new to me.
     I have been obsessed with _Always_ for a couple of weeks, so I decided to listen to the whole album. Surprisingly that's the song that fits less among the others, even though is a good album, pretty solid music and style, not a single bad song. I have to admit it's not my kind of music (even with my obsession with _that song_), but still a good album.
 
     I can listen to this album while working when I need to concentrate on what I'm doing instead of the music. The lack of commas on the title bothers me.
+
+39. [Sleeping at Last - Atlas: Space (Deluxe)](https://www.last.fm/music/Sleeping+at+Last/Atlas:+Space+(Deluxe))
+
+    Explaining this album's tracklist is a little bit complicated, so here's an explaination taken from [genius.com](https://genius.com/albums/Sleeping-at-last/Atlas-space-deluxe):
+
+    > Atlas: Space Deluxe is a compilation of Sleeping at Last’s two space-themed _[EPs: Atlas: Space 1](https://genius.com/albums/Sleeping-at-last/Atlas-space-1)_ and _[Atlas: Space 2](https://genius.com/albums/Sleeping-at-last/Atlas-space-2)_. The tracks from both EPs have been previously released together in _[Atlas: Year One](https://genius.com/albums/Sleeping-at-last/Atlas-year-one)_, but had not been packaged together as a separate entity before *Space: Deluxe.* The deluxe album also includes an instrumental for each main track.
+
+    I love the fact that this compilation has all the tracks on intrumental version, you can see a difference listening to both versions. The music is already pretty ambient, so when you listen to the track without vocals you can see each song holds up pretty well in that way. I loved the thematic for the album also, I'll also check the other tracks from the _Atlas: Year One_ compilation I hope they're good as well.
