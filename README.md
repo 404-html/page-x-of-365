@@ -234,3 +234,7 @@ The Album doesn't have to be recent, just new to me.
     > Atlas: Space Deluxe is a compilation of Sleeping at Last’s two space-themed _[EPs: Atlas: Space 1](https://genius.com/albums/Sleeping-at-last/Atlas-space-1)_ and _[Atlas: Space 2](https://genius.com/albums/Sleeping-at-last/Atlas-space-2)_. The tracks from both EPs have been previously released together in _[Atlas: Year One](https://genius.com/albums/Sleeping-at-last/Atlas-year-one)_, but had not been packaged together as a separate entity before *Space: Deluxe.* The deluxe album also includes an instrumental for each main track.
 
     I love the fact that this compilation has all the tracks on intrumental version, you can see a difference listening to both versions. The music is already pretty ambient, so when you listen to the track without vocals you can see each song holds up pretty well in that way. I loved the thematic for the album also, I'll also check the other tracks from the _Atlas: Year One_ compilation I hope they're good as well.
+
+40. [Takako Minekawa - Roomic Cube](https://www.last.fm/music/%E5%B6%BA%E5%B7%9D%E8%B2%B4%E5%AD%90/Roomic+Cube)
+
+    This album is so experimental as it can be. It's so chaotic yet so well planned, even if all songs sound different, they all complement each other. It was fun to listen to it.
