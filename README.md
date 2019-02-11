@@ -238,3 +238,12 @@ The Album doesn't have to be recent, just new to me.
 40. [Takako Minekawa - Roomic Cube](https://www.last.fm/music/%E5%B6%BA%E5%B7%9D%E8%B2%B4%E5%AD%90/Roomic+Cube)
 
     This album is so experimental as it can be. It's so chaotic yet so well planned, even if all songs sound different, they all complement each other. It was fun to listen to it.
+
+41. [His Name Is Alive - Stars on E.S.P.](https://www.last.fm/music/His+Name+Is+Alive/Stars+on+E.S.P.)
+
+    I feel bad for not listening to this band before, I love the sound from this album, is the perfect soundtrack for coming back from the beach on the afternoon when the shadow from the trees are already stretching. 
+    
+    It has a lighthearted sound, like some cute pop songs but mixed with shoegaze-y distortion and guitars that remind you of _The Beach Boys_. I hate to compare it with way more recent bands, but it's the perfect balance between _KKB_ and _Candy Claws_ (Don't hate at me, I love those two bands).
+    
+    I really don't know if their other albums sound similar, because this is my fisrt time listen to this band, but I hope they do.
+
