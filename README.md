@@ -247,3 +247,7 @@ The Album doesn't have to be recent, just new to me.
     
     I really don't know if their other albums sound similar, because this is my fisrt time listen to this band, but I hope they do.
 
+42. [Anamanaguchi - Power Supply](https://www.last.fm/music/Anamanaguchi/Power+Supply)
+
+    Hey, the first EP from Anamanaguchi is pretty, I would say it's better than their first album. Sadly the record quality of the version I listen to was not that good, I don't know if there's any remaster for this album and if there isn't it should.
+
