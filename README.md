@@ -259,3 +259,7 @@ The Album doesn't have to be recent, just new to me.
     I know they aren't from the same country or genre, but _Stormlord_ reminds me _Wintersun_ a lot, or at least they give me the same feeling while listen to them. Their music gives you an extravagant epic feeling ("epic" as the classical meaning), but keeping the dark aura of Black Metal.
 
     The album isn't perfect though, there's one song I just didn't like, which is my only issue with the album. _The Castaway_ just felt boring, its' a really skippable song, but beside that the album was really good.
+
+44. [ABBA - Voulez-Vous](https://www.last.fm/music/ABBA/Voulez-Vous)
+
+    Every song from this album is a banger, this is not a surprise coming from ABBA, a couple of their top greatest hits are from this album, but they don't shadow the other tracks, every song its good by their own merits.
