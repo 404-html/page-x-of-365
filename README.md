@@ -251,3 +251,11 @@ The Album doesn't have to be recent, just new to me.
 
     Hey, the first EP from Anamanaguchi is pretty, I would say it's better than their first album. Sadly the record quality of the version I listen to was not that good, I don't know if there's any remaster for this album and if there isn't it should.
 
+
+43. [Stormlord - Mare Nostrum](https://www.last.fm/music/Stormlord/Mare+Nostrum)
+
+    I loved this album and I'm glad to discover this band, there's been a while since the last time I listened to a "new" metal band that I want to keep on listening, and this is definitelly one.
+
+    I know they aren't from the same country or genre, but _Stormlord_ reminds me _Wintersun_ a lot, or at least they give me the same feeling while listen to them. Their music gives you an extravagant epic feeling ("epic" as the classical meaning), but keeping the dark aura of Black Metal.
+
+    The album isn't perfect though, there's one song I just didn't like, which is my only issue with the album. _The Castaway_ just felt boring, its' a really skippable song, but beside that the album was really good.
