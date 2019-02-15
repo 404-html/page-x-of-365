@@ -271,3 +271,7 @@ The Album doesn't have to be recent, just new to me.
     The album mixes different genres, some songs follow the shoegaze style from the original album, other ones are more derivative. My only issue is that the songs with different styles are mostly at the beginning of the album, and that make you think the whole album is equally diverse, but no, most of the other covers follow the band's style, but I would say they're okay at best.
 
     Definitely the best cover from the album is _When You Sleep_ by _Shonen Knife_, I have to admit I like more this version than the original, I would recommend this cover album only for that song.
+
+46. [Wire - 154](https://www.last.fm/music/Wire/154)
+
+    Well, I can't say I liked this album, neither I disliked it, it was pretty neutral to me. There were some songs that catched my attention, _A Touching Display_, _On Returning_ and _Map Ref. 41°N 93°W_ were good, also _Indirect Enquiries_ was interesting, beside that the album was very forgettable to me, maybe post-punk it's not my kind of thing.
