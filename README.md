@@ -263,3 +263,11 @@ The Album doesn't have to be recent, just new to me.
 44. [ABBA - Voulez-Vous](https://www.last.fm/music/ABBA/Voulez-Vous)
 
     Every song from this album is a banger, this is not a surprise coming from ABBA, a couple of their top greatest hits are from this album, but they don't shadow the other tracks, every song its good by their own merits.
+
+45. [Various Artists - Yellow Loveless](https://www.last.fm/music/Various+Artists/Yellow+Loveless)
+
+    It's Valentine and I've been waiting to listen this album on this day, _Loveless_ might be my favorite album from all time, so for me this is something important.
+
+    The album mixes different genres, some songs follow the shoegaze style from the original album, other ones are more derivative. My only issue is that the songs with different styles are mostly at the beginning of the album, and that make you think the whole album is equally diverse, most of the other songs follow the band's style, but I would say they're okay at best.
+
+    Definitely the best cover from the album is _When You Sleep_ by _Shonen Knife_, and I have to admit I like more this cover than the original, I would rec
