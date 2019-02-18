@@ -285,3 +285,12 @@ The Album doesn't have to be recent, just new to me.
 48. [No Age - An Object](https://www.last.fm/music/No+Age/An+Object)
 
     Really good album, decent songs with noisy lo-fi production, sadly it's too short. So is my review.
+
+49. [Yelle - Safari Disco Club](https://www.last.fm/music/Yelle/Safari+Disco+Club)
+
+    This album is more electronic than their previous work _(Pop Up)_, but is equally good in quality, a lot more danceable and energectic, but also chill and lighthearted. They're very different so I can't say which one is better.
+
+    This album will cheer you up, it doesn't have weak tracks and it's very catchy.
+
+    Great album to work out.
+
