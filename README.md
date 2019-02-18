@@ -271,7 +271,6 @@ The Album doesn't have to be recent, just new to me.
     The album mixes different genres, some songs follow the shoegaze style from the original album, other ones are more derivative. My only issue is that the songs with different styles are mostly at the beginning of the album, and that make you think the whole album is equally diverse, but no, most of the other covers follow the band's style, but I would say they're okay at best.
 
     Definitely the best cover from the album is _When You Sleep_ by _Shonen Knife_, I have to admit I like more this version than the original, I would recommend this cover album only for that song.
-<<<<<<< HEAD
 
 46. [Wire - 154](https://www.last.fm/music/Wire/154)
 
@@ -282,5 +281,7 @@ The Album doesn't have to be recent, just new to me.
     I wanted to review this album long ago but I never could because I just switched to _(¿Dónde Están los Ladrones?)[https://www.last.fm/music/Shakira/%C2%BFD%C3%B3nde+Est%C3%A1n+los+Ladrones%3F]_ at the middle of the album, not that this album is bad, but that other is just perfect.
 
     So, I already knew almost all of the the songs from this album, because Shakira was really popular back in the day (and still she is), but listening to the album as a whole gives you a better look of the production, it's a pop album, it's catchy and it's well done, every song fit its place but they aren't related between them, so you can shuffle it and still enjoy the same way. So yeah, this album is good but still _¿Dónde Están los Ladrones?_ is her best album ever.
-=======
->>>>>>> parent of 4687794... Wire - 154
+
+48. [No Age - An Object](https://www.last.fm/music/No+Age/An+Object)
+
+    Really good album, decent songs with noisy lo-fi production, sadly it's too short. So is my review.
