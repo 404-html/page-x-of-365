@@ -275,3 +275,9 @@ The Album doesn't have to be recent, just new to me.
 46. [Wire - 154](https://www.last.fm/music/Wire/154)
 
     Well, I can't say I liked this album, neither I disliked it, it was pretty neutral to me. There were some songs that catched my attention, _A Touching Display_, _On Returning_ and _Map Ref. 41°N 93°W_ were good, also _Indirect Enquiries_ was interesting, beside that the album was very forgettable to me, maybe post-punk it's not my kind of thing.
+
+47. [Shakira - Pies Descalzos](https://www.last.fm/music/Shakira/Pies+Descalzos)
+
+    I wanted to review this album long ago but I never could because I just switched to _(¿Dónde Están los Ladrones?)[https://www.last.fm/music/Shakira/%C2%BFD%C3%B3nde+Est%C3%A1n+los+Ladrones%3F]_ at the middle of the album, not that this album is bad, but that other is just perfect.
+
+    So, I already knew almost all of the the songs from this album, because Shakira was really popular back in the day (and still she is), but listening to the album as a whole gives you a better look of the production, it's a pop album, it's catchy and it's well done, every song fit its place but they aren't related between them, so you can shuffle it and still enjoy the same way. So yeah, this album is good but still _¿Dónde Están los Ladrones?_ is her best album ever.
