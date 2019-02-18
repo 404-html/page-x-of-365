@@ -278,7 +278,7 @@ The Album doesn't have to be recent, just new to me.
 
 47. [Shakira - Pies Descalzos](https://www.last.fm/music/Shakira/Pies+Descalzos)
 
-    I wanted to review this album long ago but I never could because I just switched to _(¿Dónde Están los Ladrones?)[https://www.last.fm/music/Shakira/%C2%BFD%C3%B3nde+Est%C3%A1n+los+Ladrones%3F]_ at the middle of the album, not that this album is bad, but that other is just perfect.
+    I wanted to review this album long ago but I never could because I just switched to _[¿Dónde Están los Ladrones?](https://www.last.fm/music/Shakira/%C2%BFD%C3%B3nde+Est%C3%A1n+los+Ladrones%3F)_ at the middle of the album, not that this album is bad, but that other is just perfect.
 
     So, I already knew almost all of the the songs from this album, because Shakira was really popular back in the day (and still she is), but listening to the album as a whole gives you a better look of the production, it's a pop album, it's catchy and it's well done, every song fit its place but they aren't related between them, so you can shuffle it and still enjoy the same way. So yeah, this album is good but still _¿Dónde Están los Ladrones?_ is her best album ever.
 
