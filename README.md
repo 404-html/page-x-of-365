@@ -294,3 +294,8 @@ The Album doesn't have to be recent, just new to me.
 
     Great album to work out.
 
+50. [Gomas - Amuleto](https://www.last.fm/music/Gomas/Amuleto)
+
+    This is a nice indie pop album in spanish, it has a summer vibe with lo-fi touches which I love.
+
+    Some tracks are a hit or miss, but overall is a good experience, I can still listen it from side to side without skiping any track. My favorite song is _Novata_ for their heavy synth intro, it was unexpected but was a nice touch, also is the catchiest song there.
