@@ -299,3 +299,12 @@ The Album doesn't have to be recent, just new to me.
     This is a nice indie pop album in spanish, it has a summer vibe with lo-fi touches which I love.
 
     Some tracks are a hit or miss, but overall is a good experience, I can still listen it from side to side without skiping any track. My favorite song is _Novata_ for their heavy synth intro, it was unexpected but was a nice touch, also is the catchiest song there.
+
+51. [Simon & Garfunkel - Bridge Over Troubled Water](https://www.last.fm/music/Simon+&+Garfunkel/Bridge+Over+Troubled+Water)
+
+    I have to admit that I listened to this album only for _El Condor Pasa_ but this album as a whole is a master piece.
+
+    Lirically is very good, pure poetry, the sound varies from genre to genre, overall it has a _pure_ folk sound, some parts are more aligned with the pop-rock music of the era, and they even add gospel sound to the formula on some songs.
+
+    I was suprised with this record, this probably will be one of those albums I want to have a physical copy.
+
