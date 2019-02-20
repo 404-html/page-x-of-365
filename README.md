@@ -302,7 +302,7 @@ The Album doesn't have to be recent, just new to me.
 
 51. [Simon & Garfunkel - Bridge Over Troubled Water](https://www.last.fm/music/Simon+&+Garfunkel/Bridge+Over+Troubled+Water)
 
-    I have to admit that I listened to this album only for _El Condor Pasa_ but this album as a whole is a master piece.
+    I have to admit that I listened to this record only for _El Condor Pasa_ but this album as a whole is a master piece.
 
     Lirically is very good, pure poetry, the sound varies from genre to genre, overall it has a _pure_ folk sound, some parts are more aligned with the pop-rock music of the era, and they even add gospel sound to the formula on some songs.
 
