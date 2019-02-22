@@ -308,3 +308,15 @@ The Album doesn't have to be recent, just new to me.
 
     I was suprised with this record, this probably will be one of those albums I want to have a physical copy.
 
+
+52. [Men at Work - Business As Usual](https://www.last.fm/music/Men+at+Work/Business+As+Usual)
+
+    This was a solid 10/10 album. Well, almost solid 10/10.
+
+    I love the _Men at Work_, they're one of the most iconic 80's band, all songs from this album have that style, it has their most popular songs and some other really good tracks, the only ones that didn't catch my attention were the last three (_Touching the Untouchables_, _Catch a Star_ & _Down By the Sea_). I mean, I don't know, for the three of them I was just waiting them to finish. 
+
+    Beside that it was a great album. I like to imagine Johnny from _"Be Good Johnny"_ grew up to become "Johnny B. Goode".
+
+53. [MF DOOM - MM.. Food](https://www.last.fm/music/MF+DOOM/MM..Food)
+
+54. [Enya - Shepherd Moons](https://www.last.fm/music/Enya/Shepherd+Moons)
