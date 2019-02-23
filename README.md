@@ -317,6 +317,11 @@ The Album doesn't have to be recent, just new to me.
 
     Beside that it was a great album. I like to imagine Johnny from _"Be Good Johnny"_ grew up to become "Johnny B. Goode".
 
+
 53. [MF DOOM - MM.. Food](https://www.last.fm/music/MF+DOOM/MM..Food)
 
-54. [Enya - Shepherd Moons](https://www.last.fm/music/Enya/Shepherd+Moons)
+    Ok, the greatest thing about this album is the delightful anagram for the title.
+
+    MF DOOM has a very sweet sound, smooth as a cream donut, but nutritious in quality. This album is as good as _Operation: Doomsday_ or _Madvillainy_, I was skipping to listen this record because the idea of food related songs sounds like a weird cecipe to me, but the final result was deliciously cooked and delightful to the ear.
+
+    Don't listen to this album while hungry.
