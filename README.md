@@ -326,4 +326,6 @@ The Album doesn't have to be recent, just new to me.
 
 54. [Enya - Shepherd Moons](https://www.last.fm/music/Enya/Shepherd+Moons)
 
-    Pacific and aerial sound, that can describe any of the Enya's work, and this album (ranked as one of her bests) is a perfect example for this. Tis is the perfect soundtrack to walk through mountais and forests or listening on a rainy day. No weak tracks on the album, so that makes it great, a good experience.
+    Pacific and aerial sound, that can describe any of the Enya's work, and this album (ranked as one of her bests) is a perfect example for this.
+
+    This is the perfect soundtrack to walk through mountais and forests or listening on a rainy day. No weak tracks on the album, so that makes it great, a good experience.
