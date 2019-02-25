@@ -329,3 +329,7 @@ The Album doesn't have to be recent, just new to me.
     Pacific and aerial sound, that can describe any of the Enya's work, and this album (ranked as one of her bests) is a perfect example for this.
 
     This is the perfect soundtrack to walk through mountais and forests or listening on a rainy day. No weak tracks on the album, so that makes it great, a good experience.
+
+55. [The Cure - Pornography](https://www.last.fm/music/The+Cure/Pornography)
+
+    I kinda like the proto-shoegaze sound from this album, but most of the songs didn't caught my attention. Not much to say about it.
