@@ -341,3 +341,7 @@ The Album doesn't have to be recent, just new to me.
     I love the theatrical sound from this EP, it's something that reminds me of Broadway musicals, a style closer to The Killer than Imagine Dragons, and definitely a style closer to music that I like than music from car commercials.
 
     Sadly it's too short, (well, it's just an EP), but their period of time with this style was also too short.
+
+57. [Boards of Canada - Music Has the Right to Children](https://www.last.fm/music/Boards+of+Canada/Music+Has+the+Right+to+Children)
+
+    A 10/10 album, I didn't want to stop listening to it. Very ambiental and electronic, something similar to Aphex Twin if you want to compare them to something else (similar, but way better). I want to listen more from them but I don't want to stop listening to this album, I'll definitely check their other works but for now this album is everything.
