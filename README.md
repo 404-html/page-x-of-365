@@ -333,3 +333,11 @@ The Album doesn't have to be recent, just new to me.
 55. [The Cure - Pornography](https://www.last.fm/music/The+Cure/Pornography)
 
     I kinda like the proto-shoegaze sound from this album, but most of the songs didn't caught my attention. Not much to say about it.
+
+56. [Imagine Dragons - Speak To Me](https://www.last.fm/music/Imagine+Dragons/Speak+To+Me)
+
+    Lately there's have been a lot of hate towards Imagine Dragons tagging them as the Nickelback of our days (which I think is correct at some level). I'm not a fan of the band, but I don't hate it, I'm pretty indeferent towards it, but what caught my attention was a video on YouTube from where it played their early sound. At that point they were a totally different band with different members beside Dan Reynolds and it's a shame they didn't kept the style.
+
+    I love the theatrical sound from this EP, it's something that reminds me of Broadway musicals, a style closer to The Killer than Imagine Dragons, and definitely a style closer to music that I like than music from car commercials.
+
+    Sadly it's too short, (well, it's just an EP), but their period of time with this style was also too short.
