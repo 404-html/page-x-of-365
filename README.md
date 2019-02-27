@@ -345,3 +345,9 @@ The Album doesn't have to be recent, just new to me.
 57. [Boards of Canada - Music Has the Right to Children](https://www.last.fm/music/Boards+of+Canada/Music+Has+the+Right+to+Children)
 
     A 10/10 album, I didn't want to stop listening to it. Very ambiental and electronic, something similar to Aphex Twin if you want to compare them to something else (similar, but way better). I want to listen more from them but I don't want to stop listening to this album, I'll definitely check their other works but for now this album is everything.
+
+58. [Lil' Son Jackson - Funky Skull](https://open.spotify.com/album/6eeQwkKaIFpdqPpbHNljZR?si=lMXqnlPqRZqQLFVLZIRjuQ)
+
+    Well, this is the type of jazz that I like, but even though I feel I didn't enjoy this album.
+    
+    I tried, but I couldn't. Not much to say about it.
