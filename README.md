@@ -351,3 +351,7 @@ The Album doesn't have to be recent, just new to me.
     Well, this is the type of jazz that I like, but even though I feel I didn't enjoy this album.
     
     I tried, but I couldn't. Not much to say about it.
+
+59. [Alphataurus - Alphataurus](https://www.last.fm/music/Alphataurus/Alphataurus)
+
+    Really good progressive rock band from Italy, I'm not a fan of prog-rock, but this band catched my attention and it was a pleasant experience, it almost doesn't sound like a 70's band, they were ahead of their time. Not a fan of the genre but they're cool.
