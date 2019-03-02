@@ -355,3 +355,11 @@ The Album doesn't have to be recent, just new to me.
 59. [Alphataurus - Alphataurus](https://www.last.fm/music/Alphataurus/Alphataurus)
 
     Really good progressive rock band from Italy, I'm not a fan of prog-rock, but this band catched my attention and it was a pleasant experience, it almost doesn't sound like a 70's band, they were ahead of their time. Not a fan of the genre but they're cool.
+
+
+# March
+
+60. [Weezer - Weezer (Black Album)](https://www.last.fm/music/Weezer/Weezer+(Black+Album))
+
+    I didn't have high expectations for this album, but it wasn't that bad as I thought. The songs are too generic and don't catch your attention, it's a good album if you want something playing in the background. Maybe I'll find this playing at the dentist's lobby.
+
