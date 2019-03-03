@@ -363,3 +363,10 @@ The Album doesn't have to be recent, just new to me.
 
     I didn't have high expectations for this album, but it wasn't that bad as I thought. The songs are too generic and don't catch your attention, it's a good album if you want something playing in the background. Maybe I'll find this playing at the dentist's lobby.
 
+61. [ABBA - Arrival](https://www.last.fm/music/ABBA/Arrival)
+
+    ABBA is the best band from the 70's, I'm convinced now.
+
+    This album was pure gold. They didn't disappoint me in any track, I still like _Voulez Vous_ more, but that's just personal opinions. I'm glad I discovered more songs I didn't know from them.
+
+    Nice, nice.
