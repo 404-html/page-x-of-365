@@ -370,3 +370,12 @@ The Album doesn't have to be recent, just new to me.
     This album was pure gold. They didn't disappoint me in any track, I still like _Voulez Vous_ more, but that's just personal opinions. I'm glad I discovered more songs I didn't know from them.
 
     Nice, nice.
+
+62. [Ab-Soul - These Days...](https://www.last.fm/music/Ab-Soul/These+Days...)
+
+    When I was listening to this album I came to realize that I was listening to the definition of generic hip hop, maybe I wasn't in the mood of listening the genre, but it felt really generic. 
+
+    It wasn't _bad_, though, it have some good tracks and likeable beats but I can't say I can choose which one is the best song from all because they're just... average.
+
+    Really love the reference to [Section.80](https://www.last.fm/music/Kendrick+Lamar/Section.80) <small>(my favorite Kendrick album)</small> on _Kendrick Lamar's Interlude_, maybe that's the most memorable part from the album.
+
