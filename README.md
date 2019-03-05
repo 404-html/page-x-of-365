@@ -379,6 +379,18 @@ The Album doesn't have to be recent, just new to me.
 
     Really love the reference to [Section.80](https://www.last.fm/music/Kendrick+Lamar/Section.80) <small>(my favorite Kendrick album)</small> on _Kendrick Lamar's Interlude_, maybe that's the most memorable part from the album.
 
-62. [At the Drive-In - Relationship of Command](https://www.last.fm/music/At+the+Drive-In/Relationship+of+Command)
+63. [At the Drive-In - Relationship of Command](https://www.last.fm/music/At+the+Drive-In/Relationship+of+Command)
 
     I would love to have listened to this album back in the day, it would be one of my favorites now. Today is difficult to appreciate it, because how much music has evolved, but it really doesn't sound like a 2000' album, it was ahead of its time when it came out.
+
+64. [Godspeed You! Black Emperor - Luciferian Towers](https://www.last.fm/music/Godspeed+You!+Black+Emperor/Luciferian+Towers)
+
+    Godspeed You! Black Emperor doesn't have a bad album, and this is not the exception.
+
+    The music is different from your average BY!BE album, it's more melodic than drone-y, it also doesn't have any voice sampling along with music, which I like because voice samplings are kinda a cliché on Post-Rock to be honest. I love the main motif from the album and how it evolves alongside the tracks. I also like that the songs splitted over different tracks, which is better than a single 20 min track covering the whole song.
+
+    This is now my favorite album from them.
+
+
+
+
