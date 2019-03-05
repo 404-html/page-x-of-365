@@ -379,3 +379,6 @@ The Album doesn't have to be recent, just new to me.
 
     Really love the reference to [Section.80](https://www.last.fm/music/Kendrick+Lamar/Section.80) <small>(my favorite Kendrick album)</small> on _Kendrick Lamar's Interlude_, maybe that's the most memorable part from the album.
 
+62. [At the Drive-In - Relationship of Command](https://www.last.fm/music/At+the+Drive-In/Relationship+of+Command)
+
+    I would love to have listened to this album back in the day, it would be one of my favorites now. Today is difficult to appreciate it, because how much music has evolved, but it really doesn't sound like a 2000' album, it was ahead of its time when it came out.
