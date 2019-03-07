@@ -391,6 +391,7 @@ The Album doesn't have to be recent, just new to me.
 
     This is now my favorite album from them.
 
+65. [Colleen - The Golden Morning Breaks](https://www.last.fm/music/Colleen/The+Golden+Morning+Breaks)
 
-
+    A nice ambient album, perfect to listen while working (which is what I did). Its tone is a little sad, but not depressing. It does sound like the soundtrack from a fantasy movie with sad fairies.
 
