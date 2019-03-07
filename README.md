@@ -395,3 +395,13 @@ The Album doesn't have to be recent, just new to me.
 
     A nice ambient album, perfect to listen while working (which is what I did). Its tone is a little sad, but not depressing. It does sound like the soundtrack from a fantasy movie with sad fairies.
 
+66. [BONNIE PINK - Heaven's Kitchen](https://www.last.fm/music/BONNIE+PINK/Heaven%27s+Kitchen)
+
+    Well, I had been really into Rurouni Kenshin openings lately. Those are, indeed, the songs that I listen to when I need to do short trips, I can listen to 3 while doing them. So it was a big surprise to me when I saw this album on Spotify featuring _It's gonna rain_ (which is my favorite ending ever).
+
+    Beside that song for which I'm obviously biased, the album is really good with a chill vibe, I have to say _It's gonna rain_ doesn't fit too much among the other songs, it's more instrumentalized and with a higher tempo than the others, it's not a surpise it was chosen as an anime ending for how it stands among the other songs. As fas as I know, the song was realesed first on this album and adopted as the ending of Rurouni Kenshin afterwards, so I can't say it sounds different just because it's an ending song.
+
+    I'll have to listen to the other songs alone to really appreciate them, but so far I feel they're really cool, not a single bad song on the album. I'll also check more albums by her.
+
+
+
