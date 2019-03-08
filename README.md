@@ -407,5 +407,9 @@ The Album doesn't have to be recent, just new to me.
 67. [BROCKHAMPTON - SATURATION II](https://www.last.fm/music/BROCKHAMPTON/SATURATION+II)
 
 	This album if fire. The best Hip-Hop album on this list so far.
+	
+	It was worth to wait some time between listening to Saturation I and II, I felt _SATURATION I_ was too dense, too many thing happening, not an album I could digest in one day, but _SATURATION II_ felt more approachable, and sure it bangs.
+	
+	I just hope their other albums can live up to it.
 
 
