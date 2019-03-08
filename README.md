@@ -404,4 +404,8 @@ The Album doesn't have to be recent, just new to me.
     I'll have to listen to the other songs alone to really appreciate them, but so far I feel they're really cool, not a single bad song on the album. I'll also check more albums by her.
 
 
+67. [BROCKHAMPTON - SATURATION II](https://www.last.fm/music/BROCKHAMPTON/SATURATION+II)
+
+	This album if fire. The best Hip-Hop album on this list so far.
+
 
