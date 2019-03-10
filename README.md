@@ -414,6 +414,8 @@ The Album doesn't have to be recent, just new to me.
 
 68. [Jack Stauber - HiLo](https://www.last.fm/music/Jack+Stauber/HiLo)
 
-    This is not my kind of album, it felt too boring for me, sorry. I felt it's good, but it's not the kind of music I like.
+    This is not my kind of album, sorry.
+
+    For me, it felt too boring and trying to be funny at the same time. I felt it’s a good album, but my kind of music.
 
 
