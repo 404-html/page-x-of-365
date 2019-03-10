@@ -406,10 +406,14 @@ The Album doesn't have to be recent, just new to me.
 
 67. [BROCKHAMPTON - SATURATION II](https://www.last.fm/music/BROCKHAMPTON/SATURATION+II)
 
-	This album if fire. The best Hip-Hop album on this list so far.
-	
-	It was worth to wait some time between listening to Saturation I and II, I felt _SATURATION I_ was too dense, too many thing happening, not an album I could digest in one day, but _SATURATION II_ felt more approachable, and sure it bangs.
-	
-	I just hope their other albums can live up to it.
+    This album if fire. The best Hip-Hop album on this list so far.
+
+    It was worth to wait some time between listening to Saturation I and II, I felt _SATURATION I_ was too dense, too many thing happening, not an album I could digest in one day, but _SATURATION II_ felt more approachable, and sure it bangs.
+
+    I just hope their other albums can live up to it.
+
+68. [Jack Stauber - HiLo](https://www.last.fm/music/Jack+Stauber/HiLo)
+
+    This is not my kind of album, it felt too boring for me, sorry. I felt it's good, but it's not the kind of music I like.
 
 
