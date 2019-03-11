@@ -426,5 +426,10 @@ The Album doesn't have to be recent, just new to me.
 
     Overall it was an ok experience. Like I said way before, I'm not into punk at all, but I don't consider this album _bad_, I actually enjoyed it once I got used to the production quality.
 
+70. [Mac DeMarco - 2](https://www.last.fm/music/Mac+DeMarco/2)
 
+    So, I have been living under a rock for the last years, because this is my first time listening to Mac DeMarco. It was a good album, this is the purest definition of "indie" music out there (if that's a thing).
 
+    What caught my attention about him, was the fact that his family is full of musicians and he produces all his music using analog equipment, so his music has a pure intentional lo-fi sound. I don't know if I had to start with _Rock and Roll Night Club_ or this album, but here I am now.
+
+    _Freaking Out the Neighborhood_ was my favorite track on this record and I'm currently obsessed with it. I didn't catch any weak track on the album, but I did notice his voice sometimes fails when he wants to achieve his higher notes (maybe he had too much cigarettes while recording), but that's not a big deal, I'll definitely listen to more music by him.
