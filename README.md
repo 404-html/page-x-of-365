@@ -418,4 +418,13 @@ The Album doesn't have to be recent, just new to me.
 
     For me, it felt too boring and trying to be funny at the same time. I felt it’s a good album, but my kind of music.
 
+69. [Big Black - Songs About Fucking](https://www.last.fm/music/Big+Black/Songs+About+Fucking)
+
+    It was hard to get into this album because of the quality, I like lo-fi productions (intentional or not), but this album was too much, but that's not a big complain, it's punk rock after all.
+
+    I loved the _Kraftwerk_ cove, it was so nice to listen _The Model_ on a completely different genre. Mostly all the other song were good too, two or three tracks didn't catch my attention, and the only one I didn't like was _Colombian Necktie_.
+
+    Overall it was an ok experience. Like I said way before, I'm not into punk at all, but I don't consider this album _bad_, I actually enjoyed it once I got used to the production quality.
+
+
 
