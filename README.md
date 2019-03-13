@@ -441,3 +441,11 @@ The Album doesn't have to be recent, just new to me.
     The fisrt time I listen to it I couldn't stop, it was 3:00 AM and I didn't want to sleep listening to it, my impression was this cover is a pure work of love, this is when you love an album so much you have to cover it from start to finish.
 
     There's few albums who can be covered in a entirely different way and still sound good, and Loveless is NOT one of those, the layers of distortion and noise make it hard to cover. Japancakes took the advantage of pedal steel and cellos to emulate the ethereal aura of the album without having to strictly copying the sound, which is good because you can't compare to the original anyways.
+
+72. [Pantera - Metal Magic](https://www.last.fm/music/Pantera/Metal+Magic)
+
+    I read this was one of the best Glam Metal album ever. It is not, it's just generic Glam Metal, I like the genre, but this can't compare at all to albums by _Van Halen_ or _Mötley Crüe_ for instance.
+
+    Many people make fun of the album cover but I'm ok with it. Considering it was their fisrt album and they had to pay for everything with their own money it's understandable.
+
+    That being said there's a few songs from the album that I liked, The first two tracks were ok and _Widowmaker_ was the great, it was without a doubt, the best from all of them, maybe the only song I'll listen again from there.
