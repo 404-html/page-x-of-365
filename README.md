@@ -433,3 +433,11 @@ The Album doesn't have to be recent, just new to me.
     What caught my attention about him, was the fact that his family is full of musicians and he produces all his music using analog equipment, so his music has a pure intentional lo-fi sound. I don't know if I had to start with _Rock and Roll Night Club_ or this album, but here I am now.
 
     _Freaking Out the Neighborhood_ was my favorite track on this record and I'm currently obsessed with it. I didn't catch any weak track on the album, but I did notice his voice sometimes fails when he wants to achieve his higher notes (maybe he had too much cigarettes while recording), but that's not a big deal, I'll definitely listen to more music by him.
+
+71. [Japancakes - Loveless](https://www.last.fm/music/Japancakes/Loveless)
+
+    Loveless could easily be my favorite album ever (it could be either _Loveless_ or _The Black Parade_). The moment I knew about this cover album I jumped right to listent to it.
+
+    The fisrt time I listen to it I couldn't stop, it was 3:00 AM and I didn't want to sleep listening to it, my impression was this cover is a pure work of love, this is when you love an album so much you have to cover it from start to finish.
+
+    There's few albums who can be covered in a entirely different way and still sound good, and Loveless is NOT one of those, the layers of distortion and noise make it hard to cover. Japancakes took the advantage of pedal steel and cellos to emulate the ethereal aura of the album without having to strictly copying the sound, which is good because you can't compare to the original anyways.
