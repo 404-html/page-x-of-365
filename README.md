@@ -446,6 +446,6 @@ The Album doesn't have to be recent, just new to me.
 
     I read this was one of the best Glam Metal album ever. It is not, it's just generic Glam Metal, I like the genre, but this can't compare at all to albums by _Van Halen_ or _Mötley Crüe_ for instance.
 
-    Many people make fun of the album cover but I'm ok with it. Considering it was their fisrt album and they had to pay for everything with their own money it's understandable.
+    Many people make fun of the album cover but I'm ok with it. Considering it was their first album and they had to pay for everything with their own money, it's understandable.
 
     That being said there's a few songs from the album that I liked, The first two tracks were ok and _Widowmaker_ was the great, it was without a doubt, the best from all of them, maybe the only song I'll listen again from there.
