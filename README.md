@@ -450,6 +450,11 @@ The Album doesn't have to be recent, just new to me.
 
     That being said there's a few songs from the album that I liked, The first two tracks were ok and _Widowmaker_ was the great, it was without a doubt, the best from all of them, maybe the only song I'll listen again from there.
 
-72. [Earl Sweatshirt - Doris](https://www.last.fm/music/Earl+Sweatshirt/Doris)
+73. [Earl Sweatshirt - Doris](https://www.last.fm/music/Earl+Sweatshirt/Doris)
 
     I have to say I like this album more than _Some Rap Songs_, this one is more approachable and straightforward than SRS. The gloomy synth on the first track remind me of the times I played Doom and I was moved my the soundtrack. Musically, this album shows that he could be "The next MF DOOM" as some people say, it uses different styles of beats and samples, but all have a similar aura overall. This is a very dark album with darker lyrics, a good experience.
+
+74. [Migos - Culture](https://www.last.fm/music/Migos/Culture)
+
+    I didn't enjoy this album, most ot the sounds sound too similar, it was like listening to the same song for an hour, but not one that I liked.
+
