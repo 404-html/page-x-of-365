@@ -458,3 +458,7 @@ The Album doesn't have to be recent, just new to me.
 
     I didn't enjoy this album, most ot the sounds sound too similar, it was like listening to the same song for an hour, but not one that I liked.
 
+75. [Supertramp - Breakfast In America](https://www.last.fm/music/Supertramp/Breakfast+In+America)
+
+    This album is pure gold from begining to end, every song complements the previous one and is so easy to listen.
+
