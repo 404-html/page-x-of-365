@@ -462,3 +462,11 @@ The Album doesn't have to be recent, just new to me.
 
     This album is pure gold from begining to end, every song complements the previous one and is so easy to listen.
 
+76. [Sadus - Out for Blood](https://www.last.fm/music/Sadus/Out+for+Blood)
+    
+    Some years ago I refuse to listen to this album because all the bad criticism it got, I know the band had some influences from more "modern"<sup>[1]</sup> music styles like groove metal, but the album was good all along. Yes, they change their style, but the quality of the music wasn't bad at all.
+
+    That being said, I liked this album, it doesn't lose the phase of the music and it have really cool guitar and bass riffs, sadly the vocals aren't as good as their firsts albums, (as I said before) time makes bands change their style, but still the album is good. Steve Di Giorgio will always be my favorite bassist on the metal genre.
+
+    [1]: Modern at that time.
+
