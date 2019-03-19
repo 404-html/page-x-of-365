@@ -470,3 +470,9 @@ The Album doesn't have to be recent, just new to me.
 
     [1]: Modern at that time.
 
+77. [She - coloris](https://www.last.fm/music/She/coloris)
+
+    I can't stop listening to this album, the _Music Sounds Better With You_ sampling really bought me. This is the perfect album for working, driving, gaming, sleeping, working out, etc. It's simple but doesn't sound generic, there's a lot of forgettable chiptune music out there, but gladly this album isn't one of those.
+
+    I'll definitelly check their other albums.
+
