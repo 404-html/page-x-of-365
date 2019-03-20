@@ -476,3 +476,8 @@ The Album doesn't have to be recent, just new to me.
 
     I'll definitelly check their other albums.
 
+78. [Los Caligaris - No Es Lo Que Parece](https://www.last.fm/music/Los+Caligaris/No+Es+Lo+Que+Parece)
+
+    Argentinian ska is my favorite type of ska, mostly because all the _cuarteto_ bands put so many influences from other genres in their music and they blend a collage of different styles and rhythms that bands from other countries never care to try.
+
+    That being said this there's few song I didn't like from this album (specially _E.E.A._). That's the price you have to pay when you mix different genres in your music, but still the overall experience was really good. I want a fernet now.
