@@ -488,4 +488,9 @@ The Album doesn't have to be recent, just new to me.
 
     The country-like songs where my favorites, they stand out more among the others.
 
+80. [Angra - Ømni](https://www.last.fm/music/Angra/%C3%98mni)
+
+    I love Angra, it was one my the first Power Metal bands knew, and also I love Fabio Lione's voice, it's one of my favorite singers, but this album felt so boring, and that's sad for me because there's so much wasted potential, any song from the album was memorable, and I mean absolute zero, for a moment I thought I wasn't in the mood for Power Metal, but no, I switched to _Vision Divine_ self title album (which is also on this list) and I totally enjoyed it. I'm not even interested on listen to it again to give it another try, it was just dull and boring, and I feel so sad about it.
+
+
 
