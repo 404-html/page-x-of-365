@@ -492,5 +492,9 @@ The Album doesn't have to be recent, just new to me.
 
     I love Angra, it was one my the first Power Metal bands knew, and also I love Fabio Lione's voice, it's one of my favorite singers, but this album felt so boring, and that's sad for me because there's so much wasted potential, any song from the album was memorable, and I mean absolute zero, for a moment I thought I wasn't in the mood for Power Metal, but no, I switched to _Vision Divine_ self title album (which is also on this list) and I totally enjoyed it. I'm not even interested on listen to it again to give it another try, it was just dull and boring, and I feel so sad about it.
 
+81. [Tyler, the Creator - Flower Boy](https://www.last.fm/music/Tyler,+the+Creator/Flower+Boy)
 
+    I always have this kind of feeling when I listen to Tyler. I know he's good, and I admire him for being the antithesis of the typical rapper who brags about money a women, he's the polar opposite of that, even though I know he's good I just can't enjoy his music, I just can't get into it.
+
+    Long ago I tried to get into _Wolf_ but I couldn't, and now the same thing did happen with _Flower Boy_, maybe he's not my kind of music, and that's ok.
 
