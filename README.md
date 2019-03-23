@@ -498,3 +498,10 @@ The Album doesn't have to be recent, just new to me.
 
     Long ago I tried to get into _Wolf_ but I couldn't, and now the same thing did happen with _Flower Boy_, maybe he's not my kind of music, and that's ok.
 
+82. [Angel Witch - Angel Witch](https://www.last.fm/music/Angel+Witch/Angel+Witch/)
+
+    I had a long time without listening to NWOBHM, this was a good way to remind me of the times when I started listening to Heavy Metal. For some reasons I associate this band more with _Mercyful Fate_ than the whole NWOBHM current, the iconography and lyricism plays a big role there, mostly because the band felt evil without the need of a heavier sound.
+
+    I have to say the vocals weren't that great, but they help to that feeling of incomplex evilness the music delivers. (The same things happens with _Ghost_ but I'm not a big fan of them.)
+
+    So, the band felt simple, yet evil, being more similar to proto-black metal bands than mainstream NWOBHM. I'll need to check their other albums, though. I hope they're equally good.
