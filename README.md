@@ -505,3 +505,13 @@ The Album doesn't have to be recent, just new to me.
     I have to say the vocals weren't that great, but they help to that feeling of incomplex evilness the music delivers. (The same things happens with _Ghost_ but I'm not a big fan of them.)
 
     So, the band felt simple, yet evil, being more similar to proto-black metal bands than mainstream NWOBHM. I'll need to check their other albums, though. I hope they're equally good.
+
+83. [KANA-BOON - TIME](https://www.last.fm/music/KANA-BOON/TIME)
+
+    There's only two posible ways to discover this band, the Naruto opening, and the Filthy Frank parody. And I'm proud to admit my case was the second one.
+
+    _Silhouette_ is a really good song, I didn't watch Naruto Shippuden up to that level, but that would be my favorite opening in that case. The best of all is that most of the songs are equally good and have the same vibe, so they all fit together really well. 
+
+    I can't say I if I liked some songs more than others, the whole album was pretty consistent, even when the rhythm changed all the songs seem to fit pretty well.
+
+    And I have to say I was amazed with the quality of this record, I could probably listen more from them if I have the change.
