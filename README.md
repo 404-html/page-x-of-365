@@ -515,3 +515,10 @@ The Album doesn't have to be recent, just new to me.
     I can't say I if I liked some songs more than others, the whole album was pretty consistent, even when the rhythm changed all the songs seem to fit pretty well.
 
     And I have to say I was amazed with the quality of this record, I could probably listen more from them if I have the change.
+
+84. [Lil Pump - Harverd Dropout](https://www.last.fm/music/Lil+Pump/Harverd+Dropout)
+
+    The only song I liked from this album was _Esskeetit_ it felt like any other song from there, but at least it was more energetic and appealing. All the songs (including that) felt like the same one in different versions, they're just the same thing. Also, the rhymes weren't good at all, they don't even make sense.
+
+    A hard to listen album, not one I would like to listen again.
+
