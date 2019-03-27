@@ -522,3 +522,8 @@ The Album doesn't have to be recent, just new to me.
 
     A hard to listen album, not one I would like to listen again.
 
+85. [Bob Dylan - Bringing It All Back Home](https://www.last.fm/music/Bob+Dylan/Bringing+It+All+Back+Home)
+
+    I have to say I never listened to Bob Dylan before, but I fell in love with this album and I couldn't stop listening to it. There's not much I can say about it, I just like it a lot, maybe is my favorite album from the 60's decade on this list.
+
+
