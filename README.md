@@ -526,4 +526,12 @@ The Album doesn't have to be recent, just new to me.
 
     I have to say I never listened to Bob Dylan before, but I fell in love with this album and I couldn't stop listening to it. There's not much I can say about it, I just like it a lot, maybe is my favorite album from the 60's decade on this list.
 
+86. [Stormwarrior - Thunder & Steele](https://www.last.fm/music/Stormwarrior/Thunder+&+Steele)
 
+    The first time I listened to Stormwarrior was ten years ago or so, I felt in love with their two first album, they were fast and energetic but not in the same way as _DragonForce_ (who was the most popular band back in the day), Stormwarrior felt stronger, testosterone filled Power Metal with viking lyrics that made you feel like one of them.
+
+    After they released _Heading Northe_ (which I remember to pirate it one week before its released) their music changed a lot, it didn't feel the same, it wasn't as energetic or _epic_. At that point I didn't care anymore about their new music and I just stayed with their first two records.
+
+    This album felt like more like their earlier material, I can't say if it was equally strong or agresive (maybe I'm blinded by nostalgia) but it felt really good, I'm satified with this album and I can listen to it without any complain, all the songs felt good and their tempo hasn't slow down at all. It felt good to re-discover them again and see that they still can deliver good quality music.
+
+    I'll need to check their _Heathen Warrior_ album also, I'm hoping the best.
