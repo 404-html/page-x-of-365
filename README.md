@@ -535,3 +535,9 @@ The Album doesn't have to be recent, just new to me.
     This album felt like more like their earlier material, I can't say if it was equally strong or agresive (maybe I'm blinded by nostalgia) but it felt really good, I'm satified with this album and I can listen to it without any complain, all the songs felt good and their tempo hasn't slow down at all. It felt good to re-discover them again and see that they still can deliver good quality music.
 
     I'll need to check their _Heathen Warrior_ album also, I'm hoping the best.
+
+87. [Carly Rae Jepsen - Emotion](https://www.last.fm/music/Carly+Rae+Jepsen/Emotion)
+
+    This can be my favorite modern pop album right now, I can't find any issues with it, that's why it's so popular online. 
+
+    I can bet I just know like two songs from this album, but it's purposely made to give you the feeling you already know most of them. That doesn't mean the album is repetitive or un-original, that's just the psychology behind pop music: a song which make people feel they already know it has more chance to became popular. And this album implements so well this concept, it's not just a music masterpiece, but a psychology one too.
