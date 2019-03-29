@@ -541,3 +541,11 @@ The Album doesn't have to be recent, just new to me.
     This can be my favorite modern pop album right now, I can't find any issues with it, that's why it's so popular online. 
 
     I can bet I just know like two songs from this album, but it's purposely made to give you the feeling you already know most of them. That doesn't mean the album is repetitive or un-original, that's just the psychology behind pop music: a song which make people feel they already know it has more chance to became popular. And this album implements so well this concept, it's not just a music masterpiece, but a psychology one too.
+
+88. [The Irish Rovers - Drunken Sailor](https://www.last.fm/music/The+Irish+Rovers/Drunken+Sailor)
+
+    I started listening to this album ironically, but after a few songs I got into it and started to genuinely like it. I love how cheerful and energetic it is, I was looking for an album with that pace from a genre other than rock and I'm happy with what I found on this album.
+
+    There's many songs from this album which sound very similar from one another, but that's understandable if you consider that sailors didn't have many instruments on their ships or musical experience to experiment with new tunes.
+
+    I don't know how many of these songs are original or if all of them are folk songs, there's not much information online about the album and I don't want to research each song individually, what I know is that I'll listen more from these guys.
