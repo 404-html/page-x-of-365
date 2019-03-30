@@ -558,3 +558,7 @@ The Album doesn't have to be recent, just new to me.
 
     I didn't catch any weak point on this album, and I wouldn't like to find one because Wu-Tang Clan ain't nuttin ta fuck wit.
 
+90. [BØRNS - Dopamine](https://www.last.fm/music/B%C3%98RNS/Dopamine)
+
+    Really good album with the right amount of electronic and acustic tunes, every song is unique and have a peculiar sound but all of them fit well together. Beside that there's not much I can say about this album, it was pretty standard and not very groundbreaking, but there's no need for that. An albums doesn't have to reinvent the wheel to be good.
+
