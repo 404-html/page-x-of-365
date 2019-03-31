@@ -549,3 +549,12 @@ The Album doesn't have to be recent, just new to me.
     There's many songs from this album which sound very similar from one another, but that's understandable if you consider that sailors didn't have many instruments on their ships or musical experience to experiment with new tunes.
 
     I don't know how many of these songs are original or if all of them are folk songs, there's not much information online about the album and I don't want to research each song individually, what I know is that I'll listen more from these guys.
+
+89. [Wu-Tang Clan - Enter The Wu-Tang Clan - 36 Chambers](https://www.last.fm/music/Wu-Tang+Clan/Enter+The+Wu-Tang+Clan+-+36+Chambers+(Deluxe+Version))
+
+    I know _Wu-Tang Clan_ is a cult rap group and that should be ashamed for listening to this album until now, but I'm not. I feel like this album was their greatest hits album, because I already knew half of these songs and all their biggest hits are here. I had a similar experience with _Dookie_ on February 1 (Page 32).
+
+    I love the samples from Kung-Fu movies, it gives the album personality and a nice touch, I think back in the day those samples had more impact since the idea was more fresh than at present time, but I love how they give personlity to the album.
+
+    I didn't catch any weak point on this album, and I wouldn't like to find one because Wu-Tang Clan ain't nuttin ta fuck wit.
+
