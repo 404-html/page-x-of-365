@@ -357,7 +357,7 @@ The Album doesn't have to be recent, just new to me.
     Really good progressive rock band from Italy, I'm not a fan of prog-rock, but this band catched my attention and it was a pleasant experience, it almost doesn't sound like a 70's band, they were ahead of their time. Not a fan of the genre but they're cool.
 
 
-# March
+## March
 
 60. [Weezer - Weezer (Black Album)](https://www.last.fm/music/Weezer/Weezer+(Black+Album))
 
@@ -562,3 +562,13 @@ The Album doesn't have to be recent, just new to me.
 
     Really good album with the right amount of electronic and acustic tunes, every song is unique and have a peculiar sound but all of them fit well together. Beside that there's not much I can say about this album, it was pretty standard and not very groundbreaking, but there's no need for that. An albums doesn't have to reinvent the wheel to be good.
 
+
+## April
+
+91. [Paramore - RIOT!](https://www.last.fm/music/Paramore/RIOT!)
+
+    I have never been a fan of Paramore, so this album was really hard to listen.
+
+    I like Hayley's voice at some level, but I feel she doesn't sing with enough passion, if you add the plain guitar riffs to the formula you'll have this meager album as a result. I know this kind of music is ok for a 14 years old scene kid, but there's a lot of band from the genre with good quality and great potential, so that's not an excuse.
+
+    I also want to talk about the lyrics, but... let's just ignore that.
